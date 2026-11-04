@@ -1,1 +1,1 @@
-# zamia-petshop
+snaoopy school
